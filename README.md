@@ -8,8 +8,7 @@ Meu nome é Mateus SS
 
 -Estou aqui né 🤷‍♂️.
 
-### NAO ENTRE EM CONTATO COMIGO
-ps:mas se for urgente
+### ENTRE EM CONTATO COMIGO
 
 faustinosantos0912@gmail.com
 
